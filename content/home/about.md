@@ -19,3 +19,4 @@ title: Biography
 # See https://wowchemy.com/docs/get-started/#introduce-yourself
 author: admin
 ---
+omiodnoiq;nfiongoi;new;iogni;owngik'ig5'mgpmqg'kno'4wo
